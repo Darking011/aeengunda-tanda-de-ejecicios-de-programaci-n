@@ -1,1 +1,1 @@
-# aeengunda-tanda-de-ejecicios-de-programaci-n
+# sengunda-tanda-de-ejecicios-de-programaci-ón
